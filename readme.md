@@ -1,1 +1,1 @@
-Created by Devilbro, modified by me (i dont like the discord title and the water mark).
+Created by Devilbro, modified by me (i dont like the discord window head and the water mark).
